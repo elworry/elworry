@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @elworry.
+- 👀 I’m interested in  los videojuegos y pienso en un futuro que espero que no sea muy lejano el que yo pueda hacer mi propio videojuego.
+- 🌱 I’m currently learning  programción basica.
+- 💞️ I’m looking to collaborate on  todo tipo de proyectos, aunque mejor que sean personales.
